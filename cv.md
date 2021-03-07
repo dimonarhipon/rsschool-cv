@@ -1,6 +1,6 @@
 # Dmitry Arkhipkin
 ---
-- dimonarhipon@mail.ru
+- e-mail: dimonarhipon@mail.ru
 - Telegram: @D_arh
 
 ## About me
